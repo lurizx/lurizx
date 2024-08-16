@@ -7,3 +7,7 @@ Meu nome Luciano Henrique
 -utilizo esse espaço para minhaorganização e compartilhamento dos meus projetos desenvolvidos 
 
 ### você entrar em contato comigo 📪
+
+lucianoshsscombatti@gmail.com
+
+![](https://media1.tenor.com/m/7TzEQ2nkWscAAAAd/funny-memes-discord.gif)--
